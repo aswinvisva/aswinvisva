@@ -4,4 +4,4 @@ My name is Aswin Visva and I am going into my 3rd year at the University of Wate
 
 - 📫 Please feel free to reach out on [LinkedIn](https://www.linkedin.com/in/aswinvisva/)
 
-👯 Thanks for stopping by!
+:clinking_glasses: Thanks for stopping by!
